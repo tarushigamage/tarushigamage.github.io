@@ -3,13 +3,13 @@ I am keen to begin a career in medical molecular biology field. I am a recent gr
 
 Educational Qualifications
 ▪ Secondary education
-St. Lawrence’s convent-Colombo 06 (2006-2019)
-GCE O/L-(2016)- 7As, 2Bs
-GCE A/L-(2019)
-Physics-S 
-Chemistry-S 
-Biology-S 
-General English-A
+  St. Lawrence’s convent-Colombo 06 (2006-2019)
+   GCE O/L-(2016)- 7As, 2Bs
+   GCE A/L-(2019)
+     Physics-S 
+     Chemistry-S 
+     Biology-S 
+     General English-A
 ▪ Higher education
 Sri Lanka Institute of Information Technology (2022-2026)
 BSc (Hons) Biotechnology
