@@ -53,4 +53,5 @@ Swimming<br>
 # Resume
 [HS22881618 Tarushi Gamage( resume).pdf](https://github.com/tarushigamage/tarushigamage.github.io/files/9071031/HS22881618.Tarushi.Gamage.resume.pdf)
 
-
+# Contact Details
+Email : tarushigamage980@gmail.com
