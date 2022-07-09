@@ -6,13 +6,30 @@
 # **Educational Qualifications**
 
 ## **Secondary Education**
-  <p>St. Lawrence’s Convent-Colombo 06 <i>(2006-2019)</i></p>
-  GCE O/L-<i>(2016)</i>- 7As, 2Bs <br><br>
-  GCE A/L-<i>(2019)</i><br>
-    Physics-S <br>
-    Chemistry-S <br>
-    Biology-S <br>
-    General English-A<br>
+ <p>
+<b>Sri Lanka Institute of Information Technology (2022-2026)</b><br>
+BSc (Hons) Biotechnology<br>
+Research project- Cell biology Development and Cancer
+<br><br>
+<b>St. Lawrence’s Convent-Colombo 06 (2006-2019)</b><br><br>
+<b>GCE O/L-(2016)</b><br>
+Buddhism-A <br>
+Mathematics-A<br>
+Science-B<br>
+Sinhala -A<br>
+Health & physical education- A<br>
+Drama-B<br>
+English -A<br>
+Business & accounting studies -A<br>
+History-A<br>
+<br>
+<b>GCE A/L-(2019)</b><br>
+Physics-S <br>
+Chemistry-S<br>
+Biology-S<br>
+General English-A<br>
+
+</p>
      
 <h2>Higher Education</h2>
 Sri Lanka Institute of Information Technology <i>(2022-2026)</i><br>
