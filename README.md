@@ -68,7 +68,8 @@ Photography<br>
 Swimming<br>
 
 # Resume
-[HS22881618.Tarushi.Gamage.resume.pdf](https://github.com/tarushigamage/tarushigamage.github.io/files/9076618/HS22881618.Tarushi.Gamage.resume.pdf)
+[hs22881618     - T.R Gamage-5.pdf](https://github.com/tarushigamage/tarushigamage.github.io/files/9077240/hs22881618.-.T.R.Gamage-5.pdf)
+
 
 
 # Contact Details
