@@ -1,7 +1,7 @@
 ![WhatsApp Image 2022-07-07 at 9 28 11 PM](https://user-images.githubusercontent.com/108920037/177967430-8e087644-933d-4a14-8b6d-43077b1acd70.jpeg)
 
 # **About me**
-`I am keen to begin a career in medical molecular biology field. I am a recent graduated who combined studies with working and other commitments. In achieving this I have shown myself to be self-motivated, committed and determined in achieving my goals. I also have organizing skills, a firm sense of responsibility and my capacity to work hard under pressure. My objjective is to To build up a career in biotechnological field. Seeking for challenging career where I can show my talents and knowledge`
+`I am keen to begin a career in medical molecular biology field. I am a recent graduated who combined studies with working and other commitments. In achieving this I have shown myself to be self-motivated, committed and determined in achieving my goals. I also have organizing skills, a firm sense of responsibility and my capacity to work hard under pressure. My objective is to To build up a career in biotechnological field. Seeking for challenging career where I can show my talents and knowledge`
 
 # **Educational Qualifications**
 
